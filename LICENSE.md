@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Evernote for macOS utility with automatic Evernote for macOS Utility | AI assistant + note encryption. Featuring AI assistant and note encryption, it's the best
 
 
 
